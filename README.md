@@ -1,0 +1,2 @@
+# optimalstrateji
+optimalstrateji.com
